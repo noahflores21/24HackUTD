@@ -7,4 +7,3 @@ scoop
 
 lebron sucks
 mansukh
-^ bro stinks bad
